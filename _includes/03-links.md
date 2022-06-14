@@ -1,1 +1,1 @@
-![FU]([https://octodex.github.com/images/yaktocat.png](https://i.ytimg.com/vi/gJht0PzuAyA/mqdefault.jpg))
+![FU](https://phonoteka.org/uploads/posts/2021-05/1620855152_24-phonoteka_org-p-gachimuchi-fon-stim-27.jpg)
